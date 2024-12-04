@@ -1,4 +1,1 @@
-# szyfrCezaraFx
-# szyfrCezaraFx
-# szyfrCezaraFx
-# szyfrCezaraFx
+
